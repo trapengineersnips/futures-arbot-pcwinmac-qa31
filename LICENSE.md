@@ -1,4 +1,4 @@
-# 
+# Ligero futures arbitrage bot plugins para Mac OS | Seguro futures arbitrage bot plugins para PC Windows. Con análisis de momento y comercio de pares — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
